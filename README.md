@@ -1,1 +1,1 @@
-😎i'm cultm1nd 
+I'm cultm1nd 😎
